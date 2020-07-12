@@ -2,5 +2,5 @@
 a place to store ideas
   
   
-  changes made in branch
+  mööda lõputa teed lähevad reed kuu kahvatul kumal eha punal kaugele
   
